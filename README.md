@@ -1,1 +1,1 @@
-![TrumpBidenN](ttbt.png)
+![TrumpBiden](ttbt.png)
